@@ -1,0 +1,1 @@
+# Detached-Head-state-preparazione-alla-verifica
